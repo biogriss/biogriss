@@ -27,7 +27,7 @@
 
 .												
    
-               i was here. in my dreams. standing still as if i wasn't able to walk away. i was scared. i was frighten.
+       i was here. in my dreams. standing still as if i wasn't able to walk away. i was scared. i was frighten.
 
 
 
