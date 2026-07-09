@@ -33,3 +33,5 @@
 
   > [!NOTE]
 > keep an eye on their eyes. they're always watching when you look away
+ 
+      i actually an a artist, so check me out !
